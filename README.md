@@ -20,7 +20,7 @@ Downloading high-quality Free Fire thumbnails doesn’t have to cost a dime. We�
 
 👇 Click Here to Download Free Fire Thumbnails Assets 👇
 
-👉 [Click Here to Download Image]
+👉 Click Here to Download Image => https://govtjobnews365.com/download-free-fire-thumbnails/
 
 Features of Our Free Fire Thumbnails
 
@@ -65,6 +65,6 @@ Now that you know why Free Fire thumbnails are so important and how to use them 
 
 👇 Click Below to Download Free Fire Thumbnails 👇
 
-👉 [Click Here to Download Image]
+👉 Click Here to Download Image => https://govtjobnews365.com/download-free-fire-thumbnails/
 
 For more tips, tricks, and resources on Free Fire and content creation, stay tuned to our blog!
